@@ -1,4 +1,4 @@
-## Bem Vindo! Meu nome é João Aicardi Dequech 🖐️😁
+## Bem Vindo! Meu nome é João Aicardi Dequech 🙂
  Amante de tecnología, atualmente cursando Sistema de Informação na Escola Superior de Propaganda e Marketing(ESPM).
 
 [![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/joao_dequech/))
